@@ -6,6 +6,7 @@
 <p align="center">
   <img src="https://file.garden/aZKROjtM0CnyBnjG/1d0aa68c1efc3c6aac1e731689110b2f.gif" width="600" alt="GIF">
 </p>
-
+<img src="https://file.garden/aZKROjtM0CnyBnjG/Untitled381_20261108215318.png" width="1000" alt="art by @15mercury">
+<p align="center">
 
 
